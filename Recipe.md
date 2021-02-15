@@ -1,0 +1,12 @@
+Take one glass of water or more as compared to you how much juicy you want;
+Take a utnsil and pour water in it;
+Make the gas on a medium flame;
+When the water starts little boiling;
+Then add a packet of maggi;
+Add the maggi masala to add the yummy taste;
+Starr the maggi properly;
+It will take 4 or 5 min to be ready;
+When the maggi becomes soft then you can remove;
+And serve the maggi in the plate;
+Now your maggi is ready to be eaten;
+Enjoy;
